@@ -1,4 +1,4 @@
-# 
+# Enhance Affinity Photo for macOS with Affinity Photo for macOS secure Filter - real-time preview and vector tools, the #1 filter. Includes real-time preview and vector tools for a
 
 
 
